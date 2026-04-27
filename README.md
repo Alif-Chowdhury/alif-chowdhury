@@ -19,7 +19,7 @@ Computer Science student focused on building intelligent systems that combine so
 ## 📫 How to reach me
 
 - Email: alifrm21@gmail.com
-- LinkedIn: [<Alif R.M. Chowdhury>](https://www.linkedin.com/in/alif-r-m-chowdhury/)
+- LinkedIn: [Alif R.M. Chowdhury](https://www.linkedin.com/in/alif-r-m-chowdhury/)
 
 ## ⚡ A little more about me
 
